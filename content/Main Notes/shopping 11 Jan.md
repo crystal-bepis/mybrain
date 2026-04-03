@@ -1,0 +1,11 @@
+[[alex]]
+- [ ] cream soda
+- [x] fuel
+- [ ] coffee
+- [x] wild rice
+- [x] oats
+- [x] chia seeds 
+- [x] desk
+- [x] shoe thing
+- [ ] salt
+- [ ] washing up sponge 

@@ -1,0 +1,2 @@
+www*.dictionaryofobscuresorrows.com
+[[lyrics]]

@@ -1,0 +1,3 @@
+[[lyrics]]
+[[song ideas]]
+[[bits]]

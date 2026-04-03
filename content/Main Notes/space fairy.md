@@ -1,0 +1,2 @@
+dream about a civilization of underwater dwellers who imprison fairies for enjoyment and slavery
+they are on a planet hidden through a necklace that you can spin out into a star map of how different systems will interact over millions of years

@@ -1,0 +1,19 @@
+- [[dreams]]
+- Dreamt that my company was possibly folding
+- Start to worry because it sounds like newer hires more likely to be sacked if they're cutting back
+- Whip out phone in meeting to begin scrolling indeed
+- Get approached by HR
+- They're like okay what role is most important and I'm like uhhhh mine I guess because the most money is made from volume of content on platform
+- They like exactly so don't worry about your job security u are fine
+- However I have a proposal for u
+- I'm like uhh ok
+- HR lady is like we are looking to form a new company as part of business 
+- Need competent people involved
+- "How would you like to fly out to LA, meet President Donald J Trump and look at our plans to make Among Us Part II in collab with none other than Blizzard Entertainment as part of my doctorate proposal"
+- Think 'wtf is going on'
+- I'm unconvinced that this would be good but I'm like free holiday and also this would be incredibly funny to experience
+- Suddenly I'm on a beach in America 
+- Almost get crushed by a motherfucker hooning a superyacht in the harbour 
+- Wake up
+- Wtf
+

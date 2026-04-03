@@ -1,0 +1,3 @@
+This kit will measure your testosterone, oestradiol, total protein, albumin, globulin, alkaline phosphatase, aspartate transferase, alanine transferase, gamma GT, bilirubin, triglyceride, total cholesterol, HDL cholesterol, LDL cholesterol and non-HDL cholesterol levels.
+
+This kit will measure your testosterone, oestradiol, progesterone, prolactin, total protein, albumin, globulin, alkaline phosphatase, aspartate transferase, alanine transferase, gamma GT and bilirubin levels.

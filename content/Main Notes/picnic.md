@@ -1,0 +1,3 @@
+snacks
+blanket
+speaker
